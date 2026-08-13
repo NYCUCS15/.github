@@ -11,6 +11,13 @@
 
 </details>
 
+<details>
+<summary>交大資工</summary>
+
+如果你是交大資工的學生，寄信給黃春榮教授，報上你的名字，教授會跟孔子一樣教導你。
+
+</details>
+
 
 
 
